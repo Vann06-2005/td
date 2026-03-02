@@ -11,3 +11,4 @@ This is a simple stick man!
 
 Bro Vireak
 ចុយគ្នា
+:joy:
