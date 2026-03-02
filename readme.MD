@@ -9,5 +9,5 @@ HELLO VLOG WELCOME TO MY GUYS
 This is a simple stick man!
 
 
-Bro Vireak knows all
+Bro Vireak
 ចុយគ្នា
